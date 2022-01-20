@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MustardDishwasher
-- 👀 I’m interested in Frictional Charactrr
+- 👀 I’m interested in Frictional Characters
 - 🌱 I’m currently learning About the Bots
 - 💞️ I’m looking to collaborate on A Ghost
 - 📫 How to reach me :D
